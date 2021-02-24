@@ -9,5 +9,3 @@
 - 0.00529680BTC
 
 감사합니다.
-
-There is no more miserable human being than one in whom nothing is habitual but indecision
